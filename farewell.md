@@ -1,10 +1,14 @@
 # -o-
 
   _Fugaz_
-  Así como llegas
-  Así es como te vas
-  Así como regresas
-  Y así como no estás más.
+  
+    Así como llegas
+  
+    Así es como te vas
+  
+    Así como regresas
+  
+    Y así como no estás más.
 
 En un pasaje que escribí para marcar lo que alguna vez, ocurrió sin meditar y cómo profundamente comencé a abrir el espectro de mis sentimientos. Que por conveniencia, hemos dejado que el vacío y la ausencia sean los límites, de lo que siento y sé, fueron más que palabras de apoyo, amor o correspondencia. Escribo estos en un tono melancólico, porque sé que no te buscaré de nuevo, no haré otro movimiento ni daré otra señal.
 
